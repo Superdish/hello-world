@@ -32,7 +32,7 @@ Let's shake it up a little.
 Barry! Breakfast is ready!
 
   
-Ooming!
+Coming!
 
   
 Hang on a second.
@@ -45,7 +45,7 @@ Hello?
 - Adam?
 
   
-- Oan you believe this is happening?
+- Can you believe this is happening?
 - I can't. I'll pick you up.
 
   
@@ -273,7 +273,7 @@ that hangs after you pour it.
 Saves us millions.
 
   
-Oan anyone work on the Krelman?
+Can anyone work on the Krelman?
 
   
 Of course. Most bee jobs are
@@ -899,7 +899,7 @@ Oareful, guys. It's a little grabby.
 My sweet lord of bees!
 
   
-Oandy-brain, get off there!
+Candy-brain, get off there!
 
   
 Problem!
@@ -987,13 +987,13 @@ out here is unbelievable.
 I gotta get home.
 
   
-Oan't fly in rain.
+Can't fly in rain.
 
   
-Oan't fly in rain.
+Can't fly in rain.
 
   
-Oan't fly in rain.
+Can't fly in rain.
 
   
 Mayday! Mayday! Bee going down!
@@ -1258,7 +1258,7 @@ we'd cry with what we have to deal with.
 Anyway...
 
   
-Oan I...
+Can I...
 
   
 ...get you something?
@@ -1415,7 +1415,7 @@ I'd be up the rest of my life.
 Are you...?
 
   
-Oan I take a piece of this with me?
+Can I take a piece of this with me?
 
   
 Sure! Here, have a crumb.
@@ -3505,7 +3505,7 @@ and la-dee-da human
 tea-time snack garnishments.
 
   
-Oan't breathe.
+Can't breathe.
 
   
 Bring it in, boys!
@@ -3537,7 +3537,7 @@ Turn your key, sir!
 What do we do now?
 
   
-Oannonball!
+Cannonball!
 
   
 We're shutting honey production!
@@ -3913,7 +3913,7 @@ Then if we're lucky, we'll have
 just enough pollen to do the job.
 
   
-Oan you believe how lucky we are? We
+Can you believe how lucky we are? We
 have just enough pollen to do the job!
 
   
@@ -3946,7 +3946,7 @@ and talk to them.
 Be careful.
 
   
-Oan I get help
+Can I get help
 with the Sky Mall magazine?
 
   
@@ -4266,7 +4266,7 @@ All right, let's drop this tin can
 on the blacktop.
 
   
-Where? I can't see anything. Oan you?
+Where? I can't see anything. Can you?
 
   
 No, nothing. It's all cloudy.
@@ -4463,7 +4463,7 @@ working late tonight!
 
   
 Here's your change. Have a great
-afternoon! Oan I help who's next?
+afternoon! Can I help who's next?
 
   
 Would you like some honey with that?
@@ -4511,7 +4511,7 @@ Just leave it to me.
 
   
 You're a lifesaver, Barry.
-Oan I help who's next?
+Can I help who's next?
 
   
 All right, scramble, jocks!
@@ -4552,7 +4552,7 @@ for a second. Hold it.
 
   
 I'm sorry. I'm sorry, everyone.
-Oan we stop here?
+Can we stop here?
 
   
 I'm not making a major life decision
